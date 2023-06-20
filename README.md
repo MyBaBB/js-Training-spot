@@ -6,3 +6,4 @@ I dont like to skip. and  I take all the notes for everything
 I did Alot more JavaScript Training Altough I didnt record it here Yesterday. 
 I eat sleep, Dream, JavaScript.
 I love it.
+👽👀😎🧑‍💻
